@@ -1,0 +1,1 @@
+To purchase join our Signal group (Completely Anonymous): https://signal.group/#CjQKIAFvum8uqO4PHUXkDkKzXAUsTV3c2Mwxi4aQ0Sam8-3IEhCXqmXr0Ec0O5YYKbHDYJCe
